@@ -8,5 +8,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 
 
-![](![image](https://github.com/lyndomatue/evelyyn/assets/172790657/5d064577-07f4-4b64-a4f4-1fda12df5d2a)
-)
+
+![]()![image](https://github.com/lyndomatue/evelyyn/assets/172790657/4a1a69cf-2dac-4227-b618-639621410011)
+
